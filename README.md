@@ -1,1 +1,1 @@
-# hpY.io
+Art is everything, we should always appreciate simple things and think of it as an art, this photo symbolizes that anything can be produced as an art through photography just by having a subject and a background. In the theme “Sining sa Paghilom”, we think of healing in art but deeply we use art to heal whether it is a life problems or just any problems in our life, art makes an ease and relaxes us for the meantime to think how will we overcome those challenges
